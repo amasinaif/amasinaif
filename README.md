@@ -7,6 +7,6 @@
 📫 How to reach me:
   - LinkedIn: https://www.linkedin.com/in/amasialhazmi/
   - Twitter: https://twitter.com/a_naa44
-  - Email: amasialhazmi@example.com
+  - Email: amasialhazmi@gmail.com
 
 ⚡ Fun fact: I'm passionate about photography and love capturing moments in nature.
